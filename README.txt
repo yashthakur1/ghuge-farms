@@ -1,2 +1,2 @@
 
-Made with Love by Yash Thakur
+Made with ❤️ by Yash Thakur
